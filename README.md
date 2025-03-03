@@ -10,8 +10,8 @@ OnlyFans的官方网站是：[**www.onlyfans.com**](https://www.onlyfans.com)。
 
 ### 3. **如何注册OnlyFans账号？**
 注册OnlyFans账号非常简单，只需按照以下步骤操作：
-1. **访问官网**：打开OnlyFans官网（需使用VPN）。
-   ![](https://echo.how2cs.cn/2025-03-03-151335.png)
+1. **访问官网**：打开OnlyFans官网（需使用VPN）, 点击注册或者是选择 Google 账号登录
+   ![](https://echo.how2cs.cn/2025-03-03-152217.jpg)
 3. **填写信息**：输入邮箱地址、设置密码，并填写用户名。
    ![](https://echo.how2cs.cn/2025-03-03-151559.jpg)
 4. **验证身份**：注意：系统会向你填写的邮箱地址发送验证邮件，点击邮件中的验证链接即可成功完成账号注册。
