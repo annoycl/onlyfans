@@ -34,7 +34,7 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 ### 第一步：打开野卡官网，使用国内手机号完成注册。
 
-* 野卡官网地址：<a href="https://yeka.ai/i/GPT66">https://yeka.ai/i/ANYOFAI</a>
+* 野卡官网地址：<a href="https://yeka.ai/i/GPT66">https://yeka.ai/i/GPT888</a>
 
 ![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤一：打开野卡官网，使用国内手机号完成注册](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-1.png)
 
@@ -50,7 +50,7 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 注意：使用独家优惠码“**ANYOFAI**”，开卡费可以立减1美金！
 
-![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤三：选择服务年限，输入邀请码“ANYOFAI”，并支付开卡费用](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-4.png)
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤三：选择服务年限，输入邀请码“GPT888”，并支付开卡费用](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-4.png)
 
 ### 第四步：完善个人信息，并点击“完成认证”。
 
